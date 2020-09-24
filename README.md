@@ -8,8 +8,8 @@ https://www.btcherry.xyz
 # 最新地址
 https://www.yhg22.xyz
 
-https://www.yhgaa.xyz
+https://www.yhgaaa.xyz
 
-https://www.yhgbb.xyz
+https://www.yhgbbb.xyz
 
-https://www.yhgcc.xyz
+https://www.yhgccc.xyz
