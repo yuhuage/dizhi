@@ -10,6 +10,8 @@ https://www.yhg22.xyz
 
 https://www.yhgxx.xyz
 
-https://www.yhgbbb.xyz
+https://www.yhgzz.xyz
+
+https://www.yhgzzz.xyz
 
 https://www.yhgccc.xyz
