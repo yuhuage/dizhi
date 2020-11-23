@@ -8,8 +8,6 @@ https://www.yhg22.xyz
 
 https://www.yhgzzz.xyz
 
-https://www.yhg888y.xyz
-
 https://www.yhg66a.xyz
 
 https://www.yhg66b.xyz
