@@ -1,6 +1,5 @@
-
 # 雨花阁发布页1
-https://www.yuhuage.club
+https://www.yuhuage.link
 # 雨花阁发布页2
 https://www.btcherry.xyz
 # 最新地址
