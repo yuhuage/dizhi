@@ -8,10 +8,7 @@ https://www.yhg15.xyz
 
 https://www.yhg22.xyz
 
-https://www.yhg66c.xyz
+https://www.yhg2021.xyz
 
-https://www.yhg66d.xyz
-
-https://www.yhg66e.xyz
-
-https://www.yhg66f.xyz
+# 永久地址
+https://www.yuhuage.me (需科学上网)
