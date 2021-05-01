@@ -5,7 +5,7 @@ https://www.yhg2033.xyz
 https://www.yhg200.xyz
 
 
-有此磁力资源迅雷屏蔽了可以使用其他BT下载工具。
+有些磁力资源迅雷屏蔽了可以使用其他BT下载工具。
 
 比特彗星（BitComet）官网下载地址http://www.bitcomet.com/cn
 
