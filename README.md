@@ -1,8 +1,8 @@
 发邮件到dxj880@gmail.com获取最新地址
 
-https://www.yhg2033.xyz
+https://www.yhg2034.xyz
 
-https://www.yhg200.xyz
+https://www.yhg100.xyz
 
 
 有些磁力资源迅雷屏蔽了可以使用其他BT下载工具。
