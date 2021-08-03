@@ -2,9 +2,11 @@
 
 Update 2021.7.1
 
-https://www.yuhuage13.xyz
+https://www.yuhuage16.xyz
 
-https://www.yuhuage14.xyz
+https://www.yuhuage17.xyz
+
+发布页:https://www.yuhuage.art
 
 备用 https://bitbucket.org/yuhuage/yuhuage/src/master/
 
