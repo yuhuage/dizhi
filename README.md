@@ -6,8 +6,6 @@ https://www.yhg200.xyz
 
 https://www.yhg400.xyz
 
-https://www.yuhuage17.xyz
-
 发布页:https://www.yuhuage.art
 
 备用 https://bitbucket.org/yuhuage/yuhuage/src/master/
