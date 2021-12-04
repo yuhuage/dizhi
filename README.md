@@ -1,5 +1,9 @@
 # 雨花阁BT搜索
 
+## 保存雨花阁到电脑
+
+<a download="https://yuhuage.github.io/dizhi/" href="https://yuhuage.github.io/dizhi/">点击下载</a>
+
 ## 找回域名邮箱
 
 ### 主邮箱：yuhuage.art@gmail.com
