@@ -12,7 +12,7 @@
 
 ## 发布页:https://www.yuhuage.art
 
-## 永久地址:https://www.yuhuage.win
+## 永久地址(已被污染需科学上网):https://www.yuhuage.win
 
 ## Bitbucket发布页 https://bitbucket.org/yuhuage/yuhuage/src/master/
 
