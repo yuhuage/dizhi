@@ -6,9 +6,9 @@
 
 ### 备用邮箱:dxj880@gmail.com
 
-## 最新网址：https://www.yuhuage59.xyz
+## 最新网址：https://www.yuhuage54.xyz
 
-## 备用网址：https://www.yuhuage51.xyz
+## 备用网址：https://www.yuhuage55.xyz
 
 ## 永久地址(已被污染需科学上网):https://www.yuhuage.win
 
