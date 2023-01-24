@@ -6,7 +6,7 @@
 
 ### 备用邮箱:dxj880@gmail.com
 
-## 最新网址：https://www.yhg234.xyz
+## 最新网址：https://www.yhg345.buzz
 
 ## 备用网址：https://www.yanyuge.net
 
