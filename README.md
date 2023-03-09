@@ -6,9 +6,9 @@
 
 ### 备用邮箱:dxj880@gmail.com
 
-## 最新网址：https://www.yhg777.buzz
+## 最新网址：https://www.yhgyhg123.buzz
 
-## 备用网址：https://www.yuhuage.top
+## 备用网址：https://www.yhg666.buzz
 
 ## 永久地址(已被污染需科学上网):https://www.yuhuage.win
 
