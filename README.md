@@ -6,7 +6,7 @@
 
 ### 备用邮箱:dxj880@gmail.com
 
-## 备用网址：https://www.yhgyhg.fun
+## 备用网址：https://www.iyhg.online
 
 ## 永久地址(已被污染需科学上网):https://www.yuhuage.win
 
